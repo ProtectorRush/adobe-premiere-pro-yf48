@@ -1,4 +1,4 @@
-
+Adobe Premiere Pro for macOS exclusive Plugin: echo-removal & voice-enhancement offers the most advanced Adobe Premiere Pro for macOS plugin, with echo-removal and
 
 
 
